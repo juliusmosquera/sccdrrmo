@@ -3,4 +3,4 @@ fritz ngaob
 jonard manyak
 emem love aldie
 
-sir allan majin buus
+sir allan majin buu
